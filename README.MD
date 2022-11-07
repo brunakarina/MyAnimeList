@@ -15,7 +15,7 @@
 
 [🔗 Killua Avatar ⚡](https://i.pinimg.com/originals/79/b1/ba/79b1ba775e3e72925b835b7fdf3edb2d.gif)
 
-[🔗 Banner Genei Ryodan 🕷 with Gon 💚, Killua ⚡, Kurapika ⛓](https://images8.alphacoders.com/856/thumb-1920-856893.png)
+[🔗 Banner Genei Ryodan 🕷 with Gon 💚/ Killua ⚡/ Kurapika ⛓](https://images8.alphacoders.com/856/thumb-1920-856893.png)
 
 [🔗 Leorio 💼](https://i.pinimg.com/originals/6b/90/2a/6b902a75e2f6b0b60123f72eb135895b.png)
 
