@@ -20,4 +20,5 @@
 [🔗 Leorio 💼](https://i.pinimg.com/originals/6b/90/2a/6b902a75e2f6b0b60123f72eb135895b.png)
 
 
-[🔗 Click here to access my list 🌸](https://myanimelist.net/animelist/brunakarina)
+[🔗 Click here to access my list](https://myanimelist.net/animelist/brunakarina)
+
